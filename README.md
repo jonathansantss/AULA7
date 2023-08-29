@@ -1,0 +1,2 @@
+# AULA7
+EXERCICIO 
